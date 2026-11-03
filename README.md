@@ -9,7 +9,7 @@ Here are a few reasons why this film is a masterpiece:
 *   *Incredible Twist:* The ending is one of the most memorable in cinema history.
 *   *Stellar Acting:* The performances elevate the intense script.
 
-### Favorite Characters Ranked
+### Favorite Characters 
 
 1. Detective William Somerset
 2. Detective David Mills
